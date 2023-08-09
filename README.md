@@ -14,6 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Check out my repositories for more projects!
 
 My name is Isaiah Francis and I have 10 years of creating successful financial strategies in the finance/banking industry. 
 
